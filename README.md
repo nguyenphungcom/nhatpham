@@ -35,4 +35,4 @@ Khám phá các bí quyết, mẹo vặt và các bước chăm sóc da (skincar
 
 ---
 
-Cảm ơn bạn đã ghé thăm. Toàn bộ bài viết chi tiết đều được cập nhật thường xuyên tại website chính thức **nguyenphung.com**.
+Cảm ơn bạn đã ghé thăm. Toàn bộ bài viết chi tiết đều được cập nhật thường xuyên tại website chính thức **nguyenphung.com (https://nguyenphung.com/)**.
